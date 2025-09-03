@@ -1,1 +1,0 @@
-# Catalog-problem-statement-solution
